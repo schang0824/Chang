@@ -2,5 +2,11 @@
 
 Hello Earthlings!
 
-This is Chang from Alpha 2 galaxy
-Leave trails of delicous break crumbs to capture me.
+This is Chang from the Back of the Moon
+
+The bottom of your ground
+
+The ends of Zeta2 Reticuli 
+
+
+Fine me.
